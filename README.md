@@ -7,3 +7,4 @@
 ![image](https://github.com/Sami063/Uber-Eat---Application/assets/85618108/c800ed27-013a-40ef-be1e-3f789c05c1c6)
 
 ![image](https://github.com/Sami063/Uber-Eat---Application/assets/85618108/84737485-4f29-45f1-a3eb-0ef730277296)
+<img width="260" alt="image" src="https://github.com/Sami063/Uber-Eat---Application/assets/85618108/b7549107-d89b-4ae0-b0e0-e8bfe02ccf43">
